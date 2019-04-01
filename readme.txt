@@ -1,0 +1,1 @@
+What is education? Isn't education meant to create a person that conforms to society? What kind of education must be administrated to create a human being that meets the society's demands? Education is an experiment.
